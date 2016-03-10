@@ -22,6 +22,9 @@ No, this is not really about code development. Please share your favorite places
 * Wijnbar [Barrique](http://www.restaurantbarrique.nl/) - Nice food and great wines
 * Restaurant [Rose's Cantina](http://www.rosescantina.com/) - Very good Mexican food!
 
+## Icecream
+* IJs [Haagen Dasz - Rembrandtplein](http://haagen-dazs.nl/Home) - soooooooo scrumptious!!!!
+
 
 ## Drinks
 * [Sky Lounge](http://www.skyloungeamsterdam.com/en/) - Good cocktails and a great view over Amsterdam :house: :cocktail:
